@@ -1,2 +1,0 @@
-# Script-spam-WhatsApp
-Tes
